@@ -1,2 +1,4 @@
-# The-Friends-Who-Attack-Each-Other-4-Fun
+# Favor Of Domination
 A Game Created by TeknikSpace
+
+Creation Date: 21/12/2022
